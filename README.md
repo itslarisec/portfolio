@@ -5,4 +5,4 @@
 - Colagens experimentais
 - Peças para redes sociais
 
-<!-- TEFSU0VDe2I0czM2NC1uNG8tMy1zM2d1cjRuYzR9 -->
+[Saiba mais aqui](https://larisecco.neocities.org/)
